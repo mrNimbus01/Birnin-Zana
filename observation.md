@@ -1,0 +1,1 @@
+hello there shuri: 2° S, 30° E (±400 km). I think I got you this time. what do you think?pretty neat huh. well I'll be asleep Tonight. feel free to wake me up. or not. Doesn't matter you wakandans are just so... different
